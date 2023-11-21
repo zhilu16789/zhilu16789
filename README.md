@@ -2,7 +2,7 @@
 - 👀 I’m interested in say hi to everyone
 - 🌱 I’m currently learning mp3
 - 💞️ I’m looking to collaborate on music
-- 📫 i wannt to post a ep with tech
+- 📫 no ft anymore,need new l2
 
 <!---
 zhilu16789/zhilu16789 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
